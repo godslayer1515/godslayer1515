@@ -1,0 +1,6 @@
+- HI, i'm siddharth shukla
+- im interested in coding
+- currently learning fullstack web devlopment
+- I'm looking to collaborate on any web development project
+- for contact emainl:- siddharthshukla122333@gmail.com
+- cheers!! 
